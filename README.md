@@ -1,6 +1,6 @@
 # Jackpot Crash Course: Where High Stakes Meet Dark Choices
 
-In the realm of interactive storytelling, few games dare to blend the glittering allure of casino culture with the grim reality of life-and-death decisions. **[Jackpot Crash Course](https://puzzle-game.io/game/jackpot-crash-course-chapter-1-1 “Jackpot Crash Course”)** breaks this mold spectacularly, delivering a narrative experience that transforms every choice into a potential gamble with your survival.
+In the realm of interactive storytelling, few games dare to blend the glittering allure of casino culture with the grim reality of life-and-death decisions. **[Jackpot Crash Course](https://puzzle-game.io/game/jackpot-crash-course-chapter-1-1 "Jackpot Crash Course")** breaks this mold spectacularly, delivering a narrative experience that transforms every choice into a potential gamble with your survival.
 
 > **[Play Now](https://puzzle-game.io/game/jackpot-crash-course-chapter-1-1)** - Experience the game for free!
 
